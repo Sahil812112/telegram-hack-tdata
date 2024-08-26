@@ -1,4 +1,4 @@
--  [Video qo'llanma](https://www.youtube.com/watch?v=Er_MxjMhx-8)
+https://github.com/ulugbekde/telegram-hack-tdata.git-  [Video qo'llanma](https://www.youtube.com/watch?v=Er_MxjMhx-8)
 
 **📚 Kutub xonalarni yuklash uchun**
 
