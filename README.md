@@ -1,4 +1,4 @@
-update-  [Video qo'llanma](https://www.youtube.com/watch?v=Er_MxjMhx-8)
+-  [Video qo'llanma](https://www.youtube.com/watch?v=Er_MxjMhx-8)
 
 **📚 Kutub xonalarni yuklash uchun**
 
